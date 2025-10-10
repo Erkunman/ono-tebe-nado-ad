@@ -1,1 +1,1 @@
-https://github.com/Erkunman/ono-tebe-nado-ad#
+https://github.com/Erkunman/ono-tebe-nado-ad
